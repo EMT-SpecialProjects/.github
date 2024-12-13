@@ -1,4 +1,4 @@
-## Hi there 👋
+## ![Hi there 👋](https://media4.giphy.com/media/xTiIzJSKB4l7xTouE8/200.gif?cid=6c09b952ekkb2qlj4rkra66c2v888jmtw4d0u9s0ez40alo6&ep=v1_internal_gif_by_id&rid=200.gif&ct=g)
 
 <!--
 
